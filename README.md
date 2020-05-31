@@ -1,1 +1,0 @@
-# HNG-intern
